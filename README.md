@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @oxy7
+- I like Programming, Tading and Gaming
